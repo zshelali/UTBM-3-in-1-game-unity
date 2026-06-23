@@ -1,5 +1,7 @@
 https://www.dropbox.com/scl/fi/6r6r3s91yg75mxoqlttkb/LP2B_HAJERI_THOMAS_GUEROUT.zip?rlkey=nbj882338clc38o6uc8i4k5b8&st=lgnwaukj&dl=0
 
+Watch gameplay at https://youtu.be/HHcJuv6299M
+
 ## Ali Hajeri - Pierre Guerout - Louis Thomas
 
 **Contains :** 
